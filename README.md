@@ -1,4 +1,4 @@
-::: {align="center"}
+
 # Hey there, I'm Karthikeyan M A! 👋
 
 ### AI & Data Science Student \| Software Developer \| Problem Solver
