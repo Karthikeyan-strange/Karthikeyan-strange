@@ -171,7 +171,6 @@ free to connect with me!
 -   **LinkedIn:** [Karthikeyan_M_A](https://www.linkedin.com/in/karthikeyan-m-a-52b4482b2/)
 -   **Email:** <m.a.karthikeyan16@gmail.com>
 
-::: {align="center"}
 ### "Build. Learn. Solve. Repeat." 🚀
 
 ![Profile
