@@ -168,7 +168,7 @@ free to connect with me!
 
 -   **GitHub:**
     [@Karthikeyan-strange](https://github.com/Karthikeyan-strange)
--   **LinkedIn:** [Add your LinkedIn profile](https://www.linkedin.com/in/karthikeyan-m-a-52b4482b2/)
+-   **LinkedIn:** [Karthikeyan_M_A](https://www.linkedin.com/in/karthikeyan-m-a-52b4482b2/)
 -   **Email:** <m.a.karthikeyan16@gmail.com>
 
 ::: {align="center"}
